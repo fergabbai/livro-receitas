@@ -8,7 +8,7 @@
 
 ### Modo de Preparo
 
-1. Adicione todos o leite condensado e o achocolatado em uma tigela própria para micro-ondas e misture bem até que forme uma creme homogêneo.
+1. Adicione o leite condensado e o achocolatado em uma tigela própria para micro-ondas e misture bem até que forme uma creme homogêneo.
 2. Adicione a margarina e leve ao micro-ondas por 3 minutos
 3. Retire e misture bem até incorporar a margarina ao creme e coloque por mais 2 minutos.
 4. Retire, misture bem e coloque mais 30 segundos. Repita o processo até que o brigadeiro esteja desgrudando do fundo ou formando bolhas.
